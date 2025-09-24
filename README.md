@@ -1,5 +1,5 @@
 # J3K Technologies | VoIP cabling services Georgia | VoIP cabling company Georgia | VoIP cabling installation near me Georgia
-Professional VoIP cabling services and installation in Georgia. J3K Technologies – your trusted VoIP cabling company in Georgia for reliable, scalable, and future-ready communication networks.
+Professional VoIP cabling services and installation in Georgia. J3K Technologies- your trusted VoIP cabling company in Georgia for reliable, scalable, and future-ready communication networks.
 # Professional VoIP Cabling Services in Georgia  
 
 Voice over Internet Protocol (VoIP) has transformed the way businesses communicate. It is cost-effective, flexible, and designed to support the fast-paced communication needs of modern offices. But to get the best out of VoIP technology, you need reliable network cabling that ensures crystal-clear calls, uninterrupted connections, and seamless integration with your IT systems.  
@@ -101,7 +101,7 @@ J3K Technologies is recognized as a trusted **VoIP cabling company in Georgia** 
 - Proven record of serving offices, warehouses, and commercial properties  
 - Dedication to minimizing downtime during installation  
 
-We don’t just install cables—we build reliable communication systems that help businesses thrive.  
+We don’t just install cables - we build reliable communication systems that help businesses thrive.  
 
 ---
 
